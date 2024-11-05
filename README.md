@@ -8,6 +8,6 @@ where my work will be highly beneficial to the organization.
 👯 I look forward to collaborating with other Data Analysts to work on real-world data and provide answers to business questions by tranforming relevant data into actionable insight 
 that informed decision making.
 
-- 📫 How to reach me  osarodionogbevoen@yahoo.com or Twitter or LinkedIn
+- 📫 How to reach me  osarodionogbevoen@yahoo.com or Twitter or LinkedInhttps://www.linkedin.com/in/osarodion-ogbevoen
 
 
